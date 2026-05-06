@@ -1,4 +1,4 @@
-
+no-ban Script for shrink for brainrots is the best shrink for brainrots Script, featuring auto-heal and anti-ban. Safe and powerful for all your
 
 
 
